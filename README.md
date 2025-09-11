@@ -8,10 +8,11 @@ I AM HONOURED WHENEVER YOU WHISPER THE CROWN!! I try my best to shade perfectly,
 - Most of my ponies are old, so when you catch me with a hideous fit, DON'T JUDGE ( ˶°ㅁ°) !!
 
 
-![Image](https://github.com/user-attachments/assets/797d0a64-90d5-4276-8c0b-420491164853) ![Image](https://github.com/user-attachments/assets/b9ee3c4b-19d9-4cf8-b69f-fd18a6ab90d5) ![Image](https://github.com/user-attachments/assets/7bbe2f79-da67-46ec-b036-be5443f5f04b)
+![Image](https://github.com/user-attachments/assets/797d0a64-90d5-4276-8c0b-420491164853) ![Image](https://github.com/user-attachments/assets/7bbe2f79-da67-46ec-b036-be5443f5f04b) ![Image](https://github.com/user-attachments/assets/b9ee3c4b-19d9-4cf8-b69f-fd18a6ab90d5)
+![Image](https://github.com/user-attachments/assets/5a04ef07-ec65-4a70-afbf-0048dff22334)
 
 
-- Yep, I go insanely crazy when Sonic, Honkai Star Rail, Genshin Impact, PJSK, My Little Pony, Cookie Run: Kingdom, Precure, Lolirock, FNAF, FNF, Teen Titans (GO) are mentioned (except the fact I may or may have not realized I left some of these, however it'll be cool if you're part of one of them ((can be multiple)) and update me on things I've missed on! :D) ʚ♡ɞ
+- Yep, I go insanely crazy when Sonic, Honkai Star Rail, Genshin Impact, PJSK, My Little Pony, Cookie Run: Kingdom, Precure, Lolirock, FNAF, FNF, Teen Titans (GO) are mentioned (except the fact I may or may have not realized I left some of these, however it's cool if you're part of one of them ((can be multiple)) and update me on things I've missed on! :D) ʚ♡ɞ
 
 - Also, if you mention a fandom that I don't know, then I apologize! I mostly focus on the first two written above.
 
