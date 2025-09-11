@@ -31,11 +31,23 @@ If you're sensitive in a few specific topics, such as adult, creepy, gore etc.. 
 
 𖹭 🪼⋆.ೃ࿔*:･ I AM A CAT ADDICT AND LOVER!!! THEY'RE SO CUTE! Dogs are adorable aswell, sadly I... do not support SOME of its breeds. 🪼⋆.ೃ࿔*:･
 
+. . . ᴅᴏɴ'ᴛ ʜᴀᴛᴇ ᴍᴇ ᴏɴ ᴛʜɪꜱ, ɪᴛ'ꜱ ᴍʏ ᴏᴘɪɴɪᴏɴ. 
+₊˚⊹ ᰔ As a multishipper, I totally respect most of the ships. But in Sonic..? I am extremely sorry for the ones reading this:
+  -------------------------- ✮ ⋆ ˚｡𖦹 ⋆｡°✩ -------------------------------
+  𖤝 ShadAmy. I don't get it tbh.. I know, maybe it's their opposites that makes them a pretty popular ship? All coquette and the other's edgy. Still a massive no...
+  𖤝 Sontails. No explanation needed.
+  𖤝 KnuxAmy. Another nonsense.. I see them as siblings
+  𖤝 1/2 SONADOW. I, myelf, ship them because they're cute, but there's an actual reason on why I've put it in here.. it's the FANARTS! Why draw Sonic OOC, and Shadow like he just drank a whole ahh pack of protein? That's stupid. I'd like to name one of the artists.. @ShaddyCatz. Just like I've earlier, don't investigate since it has a bit of adult content.
+  𖤝 Shadtails | Shadream | Shadaria. DO I HAVE TO EXPLAIN, HUH?!
+
+
 
 ![Image](https://github.com/user-attachments/assets/6331ecea-2b1e-4489-ada1-23b44bd07fd2)
+
 
 
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 Take your time, relax, shoulder soft and body calm.
 . This is my first time making a repository like this, it's fun imo! (˶ˆᗜˆ˵) . 
+Sometimes I don't pay attention on what I'm typing so I can actually mess up my text- (+ my english can be terrible)
