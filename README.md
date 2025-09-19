@@ -26,7 +26,7 @@ I AM HONOURED WHENEVER YOU WHISPER THE CROWN!! I try my best to shade perfectly,
 ![Image](https://github.com/user-attachments/assets/135b3ceb-163f-489b-a29a-de2450489d4d)
 
 
-Some facts about me: I am 14+, the more I talk with someone, the more I get weirder. Spice is the love of my life ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊  --------- > catching stars alone? I'm here <3 
+Some facts about me: the more I talk with someone, the more I get weirder. Spice is the love of my life ˖ ᡣ𐭩 ⊹ ࣪  ౨ৎ˚₊  --------- > catching stars alone? I'm here <3 
 If you're sensitive in a few specific topics, such as adult, creepy, gore etc.. you can simply tell me ^^ btw, I suck at comforting people so don't go after me :V
 
 𖹭 🪼⋆.ೃ࿔*:･ I AM A CAT ADDICT AND LOVER!!! THEY'RE SO CUTE! Dogs are adorable aswell, sadly I... do not support SOME of its breeds. 🪼⋆.ೃ࿔*:･
