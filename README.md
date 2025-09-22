@@ -1,5 +1,5 @@
  𐔌՞꜆.  ̫.꜀՞𐦯
 
-@sxshaYAEY, @NostalgicSplatterlingSys, @chomperoni, @rosiepiee, @lazikoly, @anglwngs, @floatingflyx, @Knucklesfangirl, @LEGENDOFTHESWORD, @silverxpt, @Pac3dShadowz, @TSR-Bromega, @MoonlitMelanchol, @astxrox, @Valmpyre, @T2XIIL and more ♥︎ (all incredible!)
+@sxshaYAEY, @NostalgicSplatterlingSys, @chomperoni, @rosiepiee, @lazikoly, @anglwngs, @floatingflyx, @Knucklesfangirl, @LEGENDOFTHESWORD, @silverxpt, @Pac3dShadowz, @TSR-Bromega, @MoonlitMelanchol, @astxrox, @Valmpyre, @T2XIIL, @kingofalejandro and more ♥︎ (all incredible!)
 
  ＼（＠￣∇￣＠）／
